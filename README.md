@@ -1,4 +1,7 @@
 # APRENDE A RESUMIR
+
+![](https://redhistoria.com/wp-content/uploads/2019/05/Resumen-de-texto.png)
+
 Técnica de resumen. Resumir es acotar o achicar un texto, pero no de cualquier manera, sino tomando las ideas principales, que se aprecian previa lectura minuciosa y luego de haber efectuado la técnica del subrayado, y enlazándolas de tal modo que no se pierda claridad y relación entre esas ideas.
 
 # ¿tipos de resumen que existen?
